@@ -1,3 +1,5 @@
 #是会计当官
 >加油
-详情点击http://www.haoke.com
+>详情点击http://www.haoke.com
+>
+>莫愁前路无知己，天下谁人不识君。
